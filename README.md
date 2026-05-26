@@ -1,1 +1,0 @@
-# planteco.github.io
